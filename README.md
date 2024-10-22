@@ -1,0 +1,7 @@
+- 👋 Hi, I’m DHANUSH
+- 👀 I’m interested in Athletics
+- 🌱 I’m currently learning Python,c++,c,Full Stack
+- 💞️ I’m looking to collaborate on Projects
+- 📫 How to reach me:my mail id:
+- dhanush1411vip@gmail.com
+- 😄 Pronouns:he/him
